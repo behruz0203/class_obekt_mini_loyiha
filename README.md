@@ -1,0 +1,1 @@
+# class_obekt_mini_loyiha
